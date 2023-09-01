@@ -23,3 +23,6 @@ blade runnner et blade runner 2049 https://www.youtube.com/watch?v=gCcx85zbxz4  
 que dire roblox tout les chose qui permet de faire 
 https://www.roblox.com/
 gmod https://store.steampowered.com/app/4000/Garrys_Mod/
+
+### devil may cry  
+https://www.youtube.com/watch?v=Jrg9KxGNeJY  https://www.youtube.com/watch?v=xti_6Bzpa8A
