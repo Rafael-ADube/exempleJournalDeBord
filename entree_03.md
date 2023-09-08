@@ -3,7 +3,7 @@
 
 ### Présentation
 Parlez de vous. 
-
+je m'appelle Rafael angon Dubé 
 ### Intérêts dans le domaine
 Parlez de vos intérêts en multimédia. 
 mes intérêts en multimédia sont les illustrations numériques, modèles 3D, etc., les choses qui m'intérêts le moins est le cours d'audio
