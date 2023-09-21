@@ -4,10 +4,10 @@
 Choisissez des emplois qui pourraient vous intéresser. 
 
 ### Emploi 1 
-si possible travail dans des exposition du centre de montréal dans les section multimédia. pour travailler
+si possible travail dans des exposition du centre des science de montréal dans les section multimédia. pour travailler dans la section multimédia ou dérrière les exposition 
 
 ### Emploi 2 
-4 à 5 lignes
+travailler  designer graphique junior a je pense ca pourrait etre intérésent puisque j'aime bien le cours d'illustration 
 
 ### Emploi 3 
 4 à 5 lignes 
