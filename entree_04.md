@@ -10,7 +10,7 @@ si possible travail dans des exposition du centre des science de montréal dans 
 travailler  designer graphique junior a je pense ca pourrait etre intérésent puisque j'aime bien le cours d'illustration 
 
 ### Emploi 3 
-4 à 5 lignes 
+sinon petre aller a l'univer
 
 ### Emploi 4 - 
 4 à 5 lignes
