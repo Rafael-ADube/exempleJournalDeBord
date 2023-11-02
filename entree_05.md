@@ -7,7 +7,7 @@ je connaissais deja bien la matiere et le contenu et famillier pour moi
 
 ### Points à améliorer
 Nommer deux points à améliorer de votre préparation à l'examen ainsi qu'une piste de solution pour les prochains examens. 
-
+plus étudier
 ### Gestion du temps
 Comment avez-vous géré votre temps lors de l'examen?
 j'ai pris le temps qu'il me fallait pour completer l'examen
@@ -18,3 +18,4 @@ les notes de cours
 ### Difficultés
 Quelles sont les difficultés que vous avez rencontrées pendant l'examen?
 
+mieux connaitre certaine terme comme par wat
