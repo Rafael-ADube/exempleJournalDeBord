@@ -18,4 +18,4 @@ les notes de cours
 ### Difficultés
 Quelles sont les difficultés que vous avez rencontrées pendant l'examen?
 
-mieux connaitre certaine terme comme par wat
+mieux connaitre certaine terme comme par exemple watt
