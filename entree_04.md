@@ -7,7 +7,7 @@ Choisissez des emplois qui pourraient vous intéresser.
 si possible travail dans des exposition du centre des science de montréal dans les section multimédia. pour travailler dans la section multimédia ou dérrière les exposition 
 
 ### Emploi 2 
-travailler  designer graphique junior a je pense ca pourrait etre intérésent puisque j'aime bien le cours d'illustration 
+travailler designer graphique junior. je pense ca pourrait etre intérésent puisque j'aime bien le cours d'illustration. on commence avec un salaire acceptable
 
 ### Emploi 3 
 sinon petre aller a l'univers pour me spécialiser dans un domaine en particulier si jamais.
