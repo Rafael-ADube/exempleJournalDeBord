@@ -25,11 +25,12 @@ Quelle présentation avez-vous préféré et pourquoi?
 ### Entre le cours 1 et aujourd'hui, quelles découvertes as-tu faites sur le domaine du multimédia? 
 
 ### As-tu découvert un nouveau métier qui pourrait t'intéresser? 
-
+j'ai découvert des nouveau métiers mais je ne sais pas encore le quel m'intéresste le plus
 ### As-tu découvert un nouvel artiste qui t'a inspiré? 
-
+non 
 ### Pour quel type d'entreprise préférerais-tu travailler? 
-
+peut-etre 
 ### Est-ce qu'un des domaines du multimédia t'intéresse plus que les autres? 
 
 ### Est-ce que tu as préféré une sortie ou une conférence?
+une sortie parce que j'ai trouver plus amusant d'aller faire 
